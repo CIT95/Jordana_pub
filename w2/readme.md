@@ -1,0 +1,1 @@
+Something that would be pretty fun to create for dev work would be like a budget that tracks your spending and all for the month or even creating a game. I have always wondering how games were made like the snake game. 
